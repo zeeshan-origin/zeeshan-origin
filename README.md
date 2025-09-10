@@ -23,7 +23,7 @@
 
 ---
 
-### ⚡ Fun Fact
+### ⚡ Fun Fact about me 
 AI isn’t a threat to me - it’s my tool, not my replacement.  
 
 
